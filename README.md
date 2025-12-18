@@ -5,7 +5,7 @@
 📍 Adelaide, South Australia  
 
 I enjoy building reliable systems, learning how software works at scale, and solving practical engineering problems.  
-Currently seeking **Junior Software Engineer / IT Support / Systems** roles in Australia.
+Currently seeking **IT SUPPORT & SOFTWARE ENGINEER | CLOUD & NETWORK SPECIALIST | CYBERSECURITY ENTHUSIAST** roles in Australia.
 
 ---
 
